@@ -24,15 +24,16 @@
 
 **CIRCUIT DIAGRAM:**
 
+![WhatsApp Image 2025-11-22 at 19 43 16_7021edb2](https://github.com/user-attachments/assets/ed2f1c1d-32d6-4ef4-b939-34084565f785)
 
 
+**TABULAR COLUMN**
 
+![WhatsApp Image 2025-11-22 at 19 45 46_d88530ee](https://github.com/user-attachments/assets/aac48408-3e60-40f1-91f9-137bd7a43a37)
 
+**CALCULATION**
 
-
-
-
-
+![WhatsApp Image 2025-11-22 at 19 47 34_067a831d](https://github.com/user-attachments/assets/49b05468-60e9-4d6c-a843-58cfb49779b0)
 
 
 **PROCEDURE:**
